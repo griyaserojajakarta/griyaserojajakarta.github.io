@@ -36,7 +36,7 @@ Hubungi Kami Segera : Telepon/Whatsapp :
 #griyaserojapesanggrahan
 
 
-## Acknowledgements
+## Kunjungi Situs Kami
  - [+62 822–8000–3848](https://wa.wizard.id/b73ac1)
  - [Griya Seroja](https://griyaseroja.com/)
  - [Tentang Kami](https://griyaseroja.com/about-us/)
