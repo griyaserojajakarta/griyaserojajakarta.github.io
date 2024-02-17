@@ -1,5 +1,5 @@
 
-# griya seroja
+# Griya Seroja
 
 Selamat datang di Griya Seroja - destinasi impian untuk kehidupan yang berkualitas di Jakarta Selatan!
 
